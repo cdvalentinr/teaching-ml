@@ -6,3 +6,4 @@ Felipe Abraham Santana Román, fasantana@imp.mx
 Moises
 Angel Cervantes, jahudiel_10@hotmail.com
 
+Cristian David Valentin Ramirez, cdvalentinr@unal.edu.co
